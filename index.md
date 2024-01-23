@@ -1,4 +1,4 @@
-# Welkom op Stijns Github repo!  
+# Welkom op Stijn's Github repo!  
   
 ![Welkom](https://t3.ftcdn.net/jpg/02/37/57/40/360_F_237574042_UUqnYdNfjWZMdCoZuvsZmHcfDCmC36nN.jpg)  
   
